@@ -22,7 +22,7 @@
 
 - 📫 How to reach me 
 
-  [𝒫𝑜𝓇𝓉𝒻𝑜𝓁𝒾𝑜](https:///padalakiran.wixsite.com//kiran-portfolio)
+  
 
   [<img align="left" width="25" height="25" src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/ca/LinkedIn_logo_initials.png/768px-LinkedIn_logo_initials.png">](https://www.linkedin.com/in/narendra-bellapu-962002193/)
   [<img align="left" width="25" height="25" src="https://upload.wikimedia.org/wikipedia/commons/thumb/6/6b/WhatsApp.svg/2044px-WhatsApp.svg.png">](https://wa.me/6300685852)
